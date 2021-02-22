@@ -2,7 +2,7 @@
 
 Lets C#
 
-# Contatc me 
-
-linked in-linkedin.com/in/sumankarki1243 
+# Contact me 
+mail to : contact@suman-karki.com.np
+linked in- linkedin.com/in/sumankarki1243 
 
